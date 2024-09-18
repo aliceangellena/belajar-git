@@ -10,8 +10,3 @@ git cepat, kerjaan saya segera selesai.
 
 ## Harapan saya
 
-sdfghjkl;tyuiohjkbnm
-sdfghjkl;tyuiohjkbnm
-
-
-wewrtryurdetfygujhr67ertturtrtytyyuhikjlkl
