@@ -12,3 +12,6 @@ git cepat, kerjaan saya segera selesai.
 
 sdfghjkl;tyuiohjkbnm
 sdfghjkl;tyuiohjkbnm
+
+
+wewrtryurdetfygujhr67ertturtrtytyyuhikjlkl
